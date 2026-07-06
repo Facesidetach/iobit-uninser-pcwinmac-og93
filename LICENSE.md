@@ -1,4 +1,4 @@
-# 
+# Instantané IObit Uninstaller scripts pour Mac OS | Automatique IObit Uninstaller scripts pour PC Windows. Avec visualisation de données et support multi-écrans — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
